@@ -3,7 +3,7 @@
 programming and video editing
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on work effectively
-- 📫 How to reach me figueiredothiago105@gmail.com
+- 📫 How to reach me 
 - 😄 Pronouns: ele/dele
   
 
